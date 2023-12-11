@@ -12,7 +12,7 @@
 
 - 👨‍💻 All of my projects are available at [Github](https://github.com/Vaporha?tab=repositories)
 
-- 📫 You can reach me by joining my [discord](https://discord.gg/ZZaE8VYKWb)
+- 📫 You can reach me by uh idfk just make a issue and we chat there :skull:
 
 ---
 
